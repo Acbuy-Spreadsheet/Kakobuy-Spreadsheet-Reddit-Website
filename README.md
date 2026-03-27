@@ -1,6 +1,6 @@
 # The Ultimate Kakobuy Spreadsheet  2026 — 10,000+ Verified Links
 
-👉https://docs.google.com/spreadsheets/d/1qqw0xK8hicUSf5dmgvlQnS41FBPm9tjs6jqah_TIGuY/edit?gid=1185164629#gid=1185164629
+👉https://docs.google.com/spreadsheets/d/1qqw0xK8hicUSf5dmgvlQnS41FBPm9tjs6jqah_TIGuY/edit?gid=2049321523#gid=2049321523
 
 
 ## Fix Slow Sheets: Kakobuy Spreadsheet Website vs Solution
@@ -67,10 +67,10 @@ Whether you’re hunting for budget finds or premium batches, the right interfac
 
 👇 **The Ultimate Spreadsheet Website — 10,000+ Verified Links** 👇  
 
-https://www.kakobuyspreadsheetbest.com
+[kakobuy spreadsheet](https://www.kakobuyspreadsheetbest.com)
 
-https://www.oopbuydocs.com
+[oopbuy spreadsheet](https://www.oopbuydocs.com)
 
-https://www.litbuydocs.com
+[litbuy spreadsheet](https://www.litbuydocs.com)
 
-https://www.bestcnfansspreadsheet2026.com
+[cnfans spreadsheet](https://www.bestcnfansspreadsheet2026.com)
